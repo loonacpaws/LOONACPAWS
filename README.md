@@ -1,5 +1,4 @@
-## Hi there 👋
-
+![](https://komarev.com/ghpvc/?username=loonacpaws&label=LOONAC!&color=cfe1e3)
 <!--
 **loonacpaws/LOONACPAWS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
