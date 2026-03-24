@@ -1,15 +1,13 @@
-wtf
-<!--
-**loonacpaws/LOONACPAWS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://komarev.com/ghpvc/?username=loonacpaws&label=LOONAC!&color=cfe1e3)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+this is a large wip lmao idk why its public whatever 
+go vis straw
+
+   " thank you for being my teammate, i guess."
+
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+
+   
+<img width="266" height="296" alt="Screenshot 2026-03-23 115349" src="https://github.com/user-attachments/assets/ba5ee5f2-6de2-4e95-bf3a-839795fab880" />
